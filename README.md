@@ -478,4 +478,3 @@ This repository is **not officially affiliated with or endorsed by Bunny.net** b
   - cheap cdn 2026
   - bunny.net signup bonus
 -->
-<meta name="google-site-verification" content="ukHO1faiQfJEoDlbTeeIBmm7kA8J3jPHskfsIo_tiNw" />
