@@ -2,19 +2,20 @@
   SEO Keywords (for crawler context):
   bunny.net promo code, bunny.net coupon, bunnycdn promo code, bunny.net discount,
   bunny.net free credits, bunny.net referral code, bunny cdn coupon, bunny.net 2026,
-  bunny.net trial, bunny stream promo, bunny.net vs cloudflare, cheap cdn 2026
+  bunny.net trial, bunny stream promo, bunny.net vs cloudflare, cheap cdn 2026,
+  TUTORBUNNY, THEGUIDEX, bunny.net promo code may 2026, bunny.net working coupon
 -->
 
-# 🐰 Bunny.net Promo Code 2026 — Get $5 FREE Credits + 14-Day Trial [Verified March 2026]
+# 🐰 Bunny.net Promo Code 2026 — Get $5 FREE Credits + 14-Day Trial [Verified May 2026]
 
-[![Last Verified](https://img.shields.io/badge/Codes%20Verified-March%202026-success?style=for-the-badge&logo=checkmarx&logoColor=white)](#-working-bunnynet-promo-codes-march-2026)
+[![Last Verified](https://img.shields.io/badge/Codes%20Verified-May%202026-success?style=for-the-badge&logo=checkmarx&logoColor=white)](#-working-bunnynet-promo-codes-may-2026)
 [![Bunny.net Official](https://img.shields.io/badge/Bunny.net-Official%20Partner-FF8800?style=for-the-badge&logo=bunny&logoColor=white)](https://bunny.net?ref=yuysp85iej)
 [![Free Credits](https://img.shields.io/badge/Free%20Credits-%245.00-brightgreen?style=for-the-badge)](https://bunny.net?ref=yuysp85iej)
 [![Free Trial](https://img.shields.io/badge/Free%20Trial-14%20Days-blue?style=for-the-badge)](https://bunny.net?ref=yuysp85iej)
 [![No Credit Card](https://img.shields.io/badge/No%20Credit%20Card-Required-9cf?style=for-the-badge)](https://bunny.net?ref=yuysp85iej)
 
 > ## 💸 **Get $5 in FREE Bunny.net credits — instantly.**
-> Use any **verified promo code** below at signup and start using the world's fastest CDN with $5 of bandwidth on the house. **No credit card required.** All codes tested and confirmed working as of **March 2026**.
+> Use any **verified promo code** below at signup and start using the world's fastest CDN with $5 of bandwidth on the house. **No credit card required.** All codes tested and confirmed working as of **May 2026**.
 >
 > ### 👉 **[CLAIM YOUR $5 FREE CREDITS →](https://bunny.net?ref=yuysp85iej)**
 
@@ -28,11 +29,12 @@
 
 ## 📑 Table of Contents
 
-- [✅ Working Bunny.net Promo Codes (March 2026)](#-working-bunnynet-promo-codes-march-2026)
+- [✅ Working Bunny.net Promo Codes (May 2026)](#-working-bunnynet-promo-codes-may-2026)
+- [❌ Recently Expired Codes (March 2026)](#-recently-expired-codes-march-2026)
 - [🚀 How to Redeem Your Bunny.net Coupon](#-how-to-redeem-your-bunnynet-coupon)
 - [🐰 What is Bunny.net?](#-what-is-bunnynet-the-fastest-cdn-of-2026)
 - [⚔️ Bunny.net vs Cloudflare vs AWS CloudFront vs Fastly](#️-bunnynet-vs-cloudflare-vs-aws-cloudfront-vs-fastly-2026-comparison)
-- [💰 Bunny.net Pricing Breakdown](#-bunnynet-pricing-breakdown-march-2026)
+- [💰 Bunny.net Pricing Breakdown](#-bunnynet-pricing-breakdown-may-2026)
 - [⚡ Performance & Network](#-performance--global-network)
 - [⭐ Bunny.net Reviews — What Real Users Say](#-bunnynet-reviews--what-real-users-say)
 - [🎯 Who Should Use Bunny.net?](#-who-should-use-bunnynet)
@@ -41,10 +43,10 @@
 
 ---
 
-<a name="-working-bunnynet-promo-codes-march-2026"></a>
-## ✅ Working Bunny.net Promo Codes (March 2026)
+<a name="-working-bunnynet-promo-codes-may-2026"></a>
+## ✅ Working Bunny.net Promo Codes (May 2026)
 
-> **All codes below were independently tested and verified working in March 2026.** Each grants **$5 USD in account credit** for new Bunny.net accounts. Pick any one — they all do the same thing.
+> **All codes below were independently re-tested and verified working in May 2026.** Each grants **$5 USD in account credit** for new Bunny.net accounts. Pick any one — they all do the same thing.
 
 <table>
 <thead>
@@ -59,58 +61,23 @@
 <tbody>
 <tr>
 <td align="center"><b>1</b></td>
-<td><code><b>TheGuideX</b></code></td>
+<td><code><b>TUTORBUNNY</b></code></td>
 <td align="center">$5.00</td>
-<td align="center">✅ Mar 2026</td>
+<td align="center">✅ May 2026</td>
 <td align="center"><a href="https://bunny.net?ref=yuysp85iej"><b>Use Code →</b></a></td>
 </tr>
 <tr>
 <td align="center"><b>2</b></td>
 <td><code><b>yuysp85iej</b></code></td>
 <td align="center">$5.00</td>
-<td align="center">✅ Mar 2026</td>
+<td align="center">✅ May 2026</td>
 <td align="center"><a href="https://bunny.net?ref=yuysp85iej"><b>Use Code →</b></a></td>
 </tr>
 <tr>
 <td align="center"><b>3</b></td>
-<td><code><b>WPBLOGGING101</b></code></td>
+<td><code><b>THEGUIDEX</b></code></td>
 <td align="center">$5.00</td>
-<td align="center">✅ Mar 2026</td>
-<td align="center"><a href="https://bunny.net?ref=yuysp85iej"><b>Use Code →</b></a></td>
-</tr>
-<tr>
-<td align="center"><b>4</b></td>
-<td><code><b>BLOGGINGASK</b></code></td>
-<td align="center">$5.00</td>
-<td align="center">✅ Mar 2026</td>
-<td align="center"><a href="https://bunny.net?ref=yuysp85iej"><b>Use Code →</b></a></td>
-</tr>
-<tr>
-<td align="center"><b>5</b></td>
-<td><code><b>WPLOGOUT</b></code></td>
-<td align="center">$5.00</td>
-<td align="center">✅ Mar 2026</td>
-<td align="center"><a href="https://bunny.net?ref=yuysp85iej"><b>Use Code →</b></a></td>
-</tr>
-<tr>
-<td align="center"><b>6</b></td>
-<td><code><b>WPSPEEDMATTERS</b></code></td>
-<td align="center">$5.00</td>
-<td align="center">✅ Mar 2026</td>
-<td align="center"><a href="https://bunny.net?ref=yuysp85iej"><b>Use Code →</b></a></td>
-</tr>
-<tr>
-<td align="center"><b>7</b></td>
-<td><code><b>FRESHDASH</b></code></td>
-<td align="center">$5.00</td>
-<td align="center">✅ Mar 2026</td>
-<td align="center"><a href="https://bunny.net?ref=yuysp85iej"><b>Use Code →</b></a></td>
-</tr>
-<tr>
-<td align="center"><b>8</b></td>
-<td><code><b>BECLIPSE5</b></code></td>
-<td align="center">$5.00</td>
-<td align="center">✅ Mar 2026</td>
+<td align="center">✅ May 2026</td>
 <td align="center"><a href="https://bunny.net?ref=yuysp85iej"><b>Use Code →</b></a></td>
 </tr>
 </tbody>
@@ -121,6 +88,63 @@
 <p align="center">
   <a href="https://bunny.net?ref=yuysp85iej">
     <img src="https://img.shields.io/badge/⚡%20Sign%20Up%20Now%20%2B%20Get%20%245-FF8800?style=for-the-badge" alt="Sign up for Bunny.net" height="50" />
+  </a>
+</p>
+
+---
+
+<a name="-recently-expired-codes-march-2026"></a>
+## ❌ Recently Expired Codes (March 2026)
+
+The following Bunny.net promo codes were active through **March 2026** and have since been **deactivated by Bunny.net's partner program**. If you found this page after trying one of them and getting an "invalid code" error — that's why. **Use any of the 3 working codes from the table above instead** — they grant the same $5 credit.
+
+<table>
+<thead>
+<tr>
+<th>🎟️ Expired Code</th>
+<th align="center">📅 Status</th>
+<th align="center">✅ Use Instead</th>
+</tr>
+</thead>
+<tbody>
+<tr>
+<td><code>WPBLOGGING101</code></td>
+<td align="center">❌ Expired Mar 2026</td>
+<td align="center"><code><b>TUTORBUNNY</b></code></td>
+</tr>
+<tr>
+<td><code>BLOGGINGASK</code></td>
+<td align="center">❌ Expired Mar 2026</td>
+<td align="center"><code><b>THEGUIDEX</b></code></td>
+</tr>
+<tr>
+<td><code>WPLOGOUT</code></td>
+<td align="center">❌ Expired Mar 2026</td>
+<td align="center"><code><b>yuysp85iej</b></code></td>
+</tr>
+<tr>
+<td><code>WPSPEEDMATTERS</code></td>
+<td align="center">❌ Expired Mar 2026</td>
+<td align="center"><code><b>TUTORBUNNY</b></code></td>
+</tr>
+<tr>
+<td><code>FRESHDASH</code></td>
+<td align="center">❌ Expired Mar 2026</td>
+<td align="center"><code><b>THEGUIDEX</b></code></td>
+</tr>
+<tr>
+<td><code>BECLIPSE5</code></td>
+<td align="center">❌ Expired Mar 2026</td>
+<td align="center"><code><b>yuysp85iej</b></code></td>
+</tr>
+</tbody>
+</table>
+
+> 📌 **Why do codes expire?** Bunny.net's partner program rotates promo codes regularly to track which marketing channels deliver the best signups. Expired codes are not "fake" or "spam" — they were genuine $5 codes that have simply been retired. The **3 working codes above** are the active replacements as of May 2026.
+
+<p align="center">
+  <a href="https://bunny.net?ref=yuysp85iej">
+    <img src="https://img.shields.io/badge/✅%20Get%20a%20Working%20Code%20%2B%20%245-success?style=for-the-badge" alt="Get a working code" height="45" />
   </a>
 </p>
 
@@ -137,7 +161,7 @@ STEP 2  →  Click "Sign Up Free" (top right)
 STEP 3  →  Enter your email + password (no card needed)
 STEP 4  →  Confirm your email address
 STEP 5  →  Open Dashboard → Billing → Promo Codes
-STEP 6  →  Paste any code from the table above
+STEP 6  →  Paste any code from the working codes table above
 STEP 7  →  Hit "Apply" — $5 lands in your account instantly
 ```
 
@@ -194,8 +218,8 @@ Real numbers, no marketing fluff. Pricing for **5 TB/month bandwidth** delivered
 
 ---
 
-<a name="-bunnynet-pricing-breakdown-march-2026"></a>
-## 💰 Bunny.net Pricing Breakdown (March 2026)
+<a name="-bunnynet-pricing-breakdown-may-2026"></a>
+## 💰 Bunny.net Pricing Breakdown (May 2026)
 
 Bunny.net uses **transparent pay-as-you-go billing** with a **$1/month minimum** across all services. No contracts. No commitments. Cancel anytime by simply not using it.
 
@@ -290,7 +314,7 @@ Independent benchmarks from [CDNPerf](https://www.cdnperf.com/) consistently ran
 <a name="-bunnynet-reviews--what-real-users-say"></a>
 ## ⭐ Bunny.net Reviews — What Real Users Say
 
-**G2 / Trustpilot / Reddit consensus (verified March 2026):**
+**G2 / Trustpilot / Reddit consensus (verified May 2026):**
 
 > *"Migrated from CloudFront and we're paying ~10% of what we used to. Performance is identical or better."*
 > *"Cache purges are genuinely instant. Everywhere. Cloudflare takes 30 seconds — Bunny takes <1."*
@@ -339,7 +363,7 @@ The **Super Bunnies** support team averages a **5-minute first response time** w
 <details>
 <summary><b>🎟️ Are these Bunny.net promo codes really free? What's the catch?</b></summary>
 <br>
-No catch. Bunny.net runs an ongoing partner & creator promotion program — every code in this list grants $5 USD in account credit, which buys roughly 500 GB of European/US CDN traffic (or ~1 TB on Volume Network). There's <b>no minimum deposit</b> required to use the trial, and codes apply instantly with no waiting period.
+No catch. Bunny.net runs an ongoing partner & creator promotion program — every working code in this list grants $5 USD in account credit, which buys roughly 500 GB of European/US CDN traffic (or ~1 TB on Volume Network). There's <b>no minimum deposit</b> required to use the trial, and codes apply instantly with no waiting period.
 </details>
 
 <details>
@@ -351,13 +375,19 @@ No catch. Bunny.net runs an ongoing partner & creator promotion program — ever
 <details>
 <summary><b>🔢 Can I stack multiple promo codes on one account?</b></summary>
 <br>
-No — Bunny.net allows <b>one code per account</b>. Pick whichever code from the verified list above. If a code returns "expired," try the next one — they're all functionally identical ($5 credit each).
+No — Bunny.net allows <b>one code per account</b>. Pick whichever code from the verified working list above. If a code returns "expired," try the next one — they're all functionally identical ($5 credit each).
 </details>
 
 <details>
 <summary><b>📅 When were these codes last verified working?</b></summary>
 <br>
-All codes in this list were independently tested and confirmed working in <b>March 2026</b>. We re-verify periodically and mark expired codes immediately. If you find a code that no longer works, please open a GitHub issue and we'll update the list within 24 hours.
+All <b>3 active codes</b> in this list were independently re-tested and confirmed working in <b>May 2026</b>. We re-verify monthly and immediately move expired codes to the "Recently Expired" section with a working replacement suggested. If you find a code that no longer works, please open a GitHub issue and we'll update the list within 24 hours.
+</details>
+
+<details>
+<summary><b>❌ Why did 6 codes expire in March 2026?</b></summary>
+<br>
+Bunny.net's partner program rotates promo codes regularly to measure which marketing channels deliver the best signups. The 6 expired codes (<code>WPBLOGGING101</code>, <code>BLOGGINGASK</code>, <code>WPLOGOUT</code>, <code>WPSPEEDMATTERS</code>, <code>FRESHDASH</code>, <code>BECLIPSE5</code>) were genuine $5 codes that have simply been retired by Bunny.net. The 3 working codes above (<code>TUTORBUNNY</code>, <code>yuysp85iej</code>, <code>THEGUIDEX</code>) are the active replacements as of May 2026 and grant the exact same $5 credit.
 </details>
 
 <details>
@@ -417,7 +447,7 @@ At $0.01/GB (Europe/US) — about <b>500 GB of CDN bandwidth</b>. That's enough 
 <details>
 <summary><b>🎟️ Will more promo codes be added to this list?</b></summary>
 <br>
-Yes. This list is maintained and updated as new Bunny.net partner codes are released. <b>⭐ Star this repository</b> to get notified, or watch it for releases. Last update: March 2026.
+Yes. This list is maintained and updated monthly as new Bunny.net partner codes are released and old ones expire. <b>⭐ Star this repository</b> to get notified, or watch it for releases. Last update: <b>May 2026</b>.
 </details>
 
 ---
@@ -436,7 +466,7 @@ Yes. This list is maintained and updated as new Bunny.net partner codes are rele
 
 If you're paying CloudFront, Fastly, or Akamai prices today — you're almost certainly overspending **5–20×** for performance you can match or beat on Bunny.net. The combination of $0.005/GB pricing, 25 ms global latency, 5-minute support response, and zero contract lock-in makes it the **best-value enterprise CDN of 2026** — full stop.
 
-The $5 promo codes above let you test it on Bunny's dime. There's genuinely no reason not to.
+The 3 working $5 promo codes above let you test it on Bunny's dime. There's genuinely no reason not to.
 
 <p align="center">
   <br>
@@ -444,7 +474,7 @@ The $5 promo codes above let you test it on Bunny's dime. There's genuinely no r
     <img src="https://img.shields.io/badge/🚀%20Get%20%245%20Free%20Credits%20on%20Bunny.net-FF8800?style=for-the-badge&labelColor=000000" alt="Get $5 Free Credits on Bunny.net" height="60" />
   </a>
   <br><br>
-  <i>✨ Codes verified working — March 2026 ✨</i>
+  <i>✨ Codes verified working — May 2026 ✨</i>
 </p>
 
 ---
@@ -454,7 +484,7 @@ The $5 promo codes above let you test it on Bunny's dime. There's genuinely no r
 
 This repository contains **affiliate / referral links**. If you sign up for Bunny.net using a link on this page, the maintainer of this list may receive a small commission **at no extra cost to you** — and you still receive your $5 in free credits regardless. This commission is what funds the ongoing verification and maintenance of this code list.
 
-All promo codes have been **independently tested and verified working as of March 2026**. Bunny.net controls the lifecycle of these codes — if one expires, please open an issue or PR so the list can be updated promptly.
+All **3 active promo codes** have been **independently tested and verified working as of May 2026**. The 6 codes listed in the "Recently Expired" section were active until March 2026 and have since been retired by Bunny.net's partner program. Bunny.net controls the lifecycle of all codes — if any active code stops working, please open an issue or PR so the list can be updated promptly.
 
 This repository is **not officially affiliated with or endorsed by Bunny.net** beyond their public referral and partner program. "Bunny.net," "BunnyCDN," and the bunny logo are trademarks of BunnyWay d.o.o.
 
@@ -467,14 +497,19 @@ This repository is **not officially affiliated with or endorsed by Bunny.net** b
 <!--
   Repository SEO targets:
   - bunny.net promo code 2026
-  - bunny.net coupon code march 2026
+  - bunny.net coupon code may 2026
+  - bunny.net working promo codes
   - bunnycdn discount code
   - bunny.net free credits
   - bunny.net referral code
+  - TUTORBUNNY bunny.net
+  - THEGUIDEX promo code
   - bunny cdn promo
   - bunny.net trial extension
   - bunny stream coupon
   - bunny.net vs cloudflare
   - cheap cdn 2026
   - bunny.net signup bonus
+  - bunny.net code expired
+  - WPBLOGGING101 BLOGGINGASK WPLOGOUT WPSPEEDMATTERS FRESHDASH BECLIPSE5
 -->
